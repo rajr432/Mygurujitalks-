@@ -1,0 +1,2 @@
+# Mygurujitalks-
+Mygurujitalks privacy policy 
